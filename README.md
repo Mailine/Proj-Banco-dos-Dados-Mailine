@@ -16,4 +16,4 @@
 
     Fica aí a reflexão, para as próximas votações.
     
-    ![Pensar-em-eleições](https://user-images.githubusercontent.com/96089256/156358723-ca124b56-3993-4a08-b899-e30ed08747e0.jpg)
+    https://setorsaude.com.br/irineugrinberg/wp-content/blogs.dir/20/files/2018/09/Pensar-em-elei%C3%A7%C3%B5es.jpgjpg)
