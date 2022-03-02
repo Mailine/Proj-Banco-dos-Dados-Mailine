@@ -15,3 +15,5 @@
 	possuem apenas o ensino médio completo.
 
     Fica aí a reflexão, para as próximas votações.
+    
+    ![Pensar-em-eleições](https://user-images.githubusercontent.com/96089256/156358319-1ca1dd20-9a70-4181-9577-5da9ed62d104.jpg)
