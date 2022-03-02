@@ -16,4 +16,4 @@
 
     Fica aí a reflexão, para as próximas votações.
     
-    ![Pensar-em-eleições](https://user-images.githubusercontent.com/96089256/156358319-1ca1dd20-9a70-4181-9577-5da9ed62d104.jpg)
+  ![Pensar-em-eleições](https://user-images.githubusercontent.com/96089256/156359052-bbfd517d-1ab7-4372-9e79-e026ed506bdf.jpg)
