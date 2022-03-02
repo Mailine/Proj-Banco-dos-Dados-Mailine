@@ -17,3 +17,8 @@
     Fica aí a reflexão, para as próximas votações.
     
   ![Pensar-em-eleições](https://user-images.githubusercontent.com/96089256/156359052-bbfd517d-1ab7-4372-9e79-e026ed506bdf.jpg)
+
+
+**Referências:**
+
+https://basedosdados.org/dataset/br-tse-eleicoes
